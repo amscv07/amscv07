@@ -1,0 +1,3 @@
+- 👋 Hola, I’m @amscv07
+- 👀 Me interesa investigar y aprender nuevos conocimientos                                                                                  
+- 🌱 Actualmente estoy aprendiendo  de todo
